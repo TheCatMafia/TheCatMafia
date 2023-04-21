@@ -3,4 +3,6 @@ TheCatMafia
 Cum
 Join the discord uwu
 
-[Invite Link](http://catmafia.abuser.eu/)
+[Invite Link](https://catmafia.be.sexy/)
+
+
