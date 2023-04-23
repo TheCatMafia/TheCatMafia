@@ -5,6 +5,8 @@ Join the discord uwu
 
 [Invite Link](https://catmafia.be.sexy/)
 
+
+```
 /‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒‒\  
 
             I love Catmafia 
@@ -14,4 +16,4 @@ Join the discord uwu
 ______     ___.'  o `.  / 
 /~----,\___/,--.   ,_ | 
         `-----'   `---'  
-
+```
